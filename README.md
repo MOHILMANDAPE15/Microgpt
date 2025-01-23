@@ -105,7 +105,8 @@ hello
 
 Sample of Generated Text:
 ```
-![Screenshot 2025-01-23 19:55:46](https://github.com/user-attachments/assets/05d23946-f3b7-4dee-8411-083d7795cf50)
+BRUTLAND: yet? To sweet pleasing markting noble health speak oy's thunder, fatherHun, we unrel case wherein come
+Why I say lofty surlevanch contested of pur blot.' what repy married! that given stumbledess, minister, spite? worser thereto, especially.
 
 ```
 
